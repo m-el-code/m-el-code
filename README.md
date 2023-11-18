@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @m-el-code
-- 👀 I currently go to TMU for CS
+- 👀 I currently go to TMU for CS (in my second year!!)
 - 📫 How to reach me: by email at manar.04e@gmail.com 
 
 <!---
